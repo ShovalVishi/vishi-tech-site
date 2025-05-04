@@ -1,1 +1,0 @@
-# vishi-tech-site
